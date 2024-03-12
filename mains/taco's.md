@@ -14,4 +14,4 @@ Cut the union and paprika.
 Bake them with a little bit of olive oil. 
 Add the beans and the spices. 
 When warm, add the corn. 
-Assamble the wrap
+Take the wrap, add sour cream, lettuce and the aobe decribed ingredients and enjoy!
