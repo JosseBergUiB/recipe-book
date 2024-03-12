@@ -4,6 +4,7 @@
 ## Ingredients
 
 - **9-12** no-boil lasagna noodles
+- **1** pack of pre-cooked lentils
 - **1** large jar (about 24 oz) of marinara sauce
 - **15 oz** ricotta cheese
 - **1** egg
@@ -30,7 +31,7 @@
    - Add the bell pepper, zucchini, and spinach. Cook until the vegetables are
      just tender and the spinach has wilted. Season with salt, pepper, and
      dried oregano.
-   - Remove from heat and set aside.
+   - Remove from heat, add the lentils and set aside.
 
 3. **Mix Cheeses:**
    - In a bowl, mix together the ricotta cheese, egg, half of the grated Parmesan cheese, and a pinch of salt and pepper. Set aside.
